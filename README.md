@@ -1,0 +1,1 @@
+*"Discipline holds the line when motivation fades. Victory belongs to the relentless."*
